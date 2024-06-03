@@ -4,4 +4,4 @@
 - 📫 How to reach me: Find me.
 
 
-You can donate to us or send money as per the SPL-R5 [here.](https://coindrop.to/sneed-group)
+You can donate to me or send money as per the SPL-R5 [here.](https://coindrop.to/sneed-group)
